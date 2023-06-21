@@ -6,9 +6,8 @@ My interest is rendering🖼️, both real-time and physically based. You can se
 
 
 
-Life interest: electric guitar🎸, music🎻🎹🎸🥁🎸🎶
+Spare time interests: guitar🎸, music🎻🎹🎸🥁🎸🎶
 
 
-Ways to contact me:
-- [zlekdius@outlook.com](zlekdius@outlook.com) (general email)
-- [changleu@seas.upenn.edu](changleu@seas.upenn.edu) (academic email)
+Contact:
+- [zlekdius@outlook.com](zlekdius@outlook.com)
