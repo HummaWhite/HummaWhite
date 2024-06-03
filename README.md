@@ -6,7 +6,7 @@ My study/professional interest is rendering🖼️, both real-time and physicall
 
 
 
-My life interests are guitar🎸 and music🎻, and not limited to these.
+My lifetime interests are guitar🎸 and music🎻, not limited to these.
 - See [This Repo](https://github.com/HummaWhite/MuseCovers) for the covers I'm making with Musescore
 
 
